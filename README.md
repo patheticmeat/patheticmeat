@@ -1,1 +1,2 @@
+<p align="center"><img width="498" height="498" alt="dayshiftatfreddys-dayshift-at-freddys" src="https://github.com/user-attachments/assets/88ecbe56-781d-4030-8530-0e6b8364d3a6" />
 
