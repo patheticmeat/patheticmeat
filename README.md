@@ -1,4 +1,4 @@
-<p align="center"> Often regressed, please be gentle with me. I can be erratic and childish ^_^
+<p align="center"> <- Often regressed, please be gentle with me. I can be erratic and childish ^_^ ->
   
-‎‎ <p align="center">[STRAWPAGE](https://patheticmeat.straw.page/) </p><p align="center"><img width="498" height="498" alt="dayshiftatfreddys-dayshift-at-freddys" src="https://github.com/user-attachments/assets/88ecbe56-781d-4030-8530-0e6b8364d3a6" />
+‎‎ <p align="center">[||=[""|""|""])>--- STRAWPAGE ⋆˙⟡ ](https://patheticmeat.straw.page/) </p><p align="center"><img width="498" height="498" alt="dayshiftatfreddys-dayshift-at-freddys" src="https://github.com/user-attachments/assets/88ecbe56-781d-4030-8530-0e6b8364d3a6" />
 <p align="center"> "henrys evil" lalalalla i cant hear you i love him lalala plugging my ears
